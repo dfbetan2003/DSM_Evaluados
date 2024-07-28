@@ -25,7 +25,7 @@ Alexis Benjamín Cisneros Luciano.	CL230619.	100%
 
 Diego Fernando Betancourt Franco.	BF230416.	100%
 
-Enlace de video:
+Enlace de video: https://drive.google.com/drive/folders/1wp94i5fOgjrrZWznqbx2CaRhcOcJAazj?usp=sharing
 
 
 Fecha 27 de julio de 2024.
